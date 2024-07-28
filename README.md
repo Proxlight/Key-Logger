@@ -1,1 +1,1 @@
-# THIS IS A PREVIEW EDITION TO GET THE FULL EDITION VIST https://pyhunt.gumroad.com/l/Keylogger
+# THIS IS A PREVIEW EDITION TO GET THE FULL EDITION VISIT https://pyhunt.gumroad.com/l/Keylogger
